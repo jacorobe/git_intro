@@ -1,1 +1,2 @@
 Robert Jacobson
+jacorobe@oregonstate.edu
